@@ -5,4 +5,3 @@
 - 📫 How to reach me : blues0laris on Discord
 - ⚡ Fun fact: I want an orange cat named Battista
 
-<div> why not </div>
